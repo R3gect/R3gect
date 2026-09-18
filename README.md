@@ -6,4 +6,6 @@
 <p>Zeke and Astral are the best people ever trust me this is totally a fact heh °‧ 𓆝 𓆟 𓆞 ·｡<p/>
 
 𓆉⋆｡˚⋆❀ 🐚🫧𓇼 ˖°If you wish to see me on Ponytown just go to bakery or somewhere at the beach along the bottom of the map! I tend to be around either places the most!⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚<br> <br>
-✩♬ ₊̊.🎧⋆☾⋆⁺₊✧ If you’re shooting with the left it means the right side is working - Ashbury Heights ▶︎ ၊၊||၊|။||||။‌‌‌‌‌၊| 1:10
+✩♬ ₊̊.🎧⋆☾⋆⁺₊✧ If you’re shooting with the left it means the right side is working - Ashbury Heights ▶︎ ၊၊||၊|။||||။‌‌‌‌‌၊| 1:10 <br> <br>
+Ponies you’ll commonly see me as:
+<br> ⋆｡˚⋆❀ Regect -Aregect (Main) <br> 𖥔 ݁ ˖Wifies -Mainly for TSFTL (Secondary) <Br> ⋆｡˚⋆❀Averythemayo + D3rlord3 -SF/Dawtde <br> 𖥔 ݁ ˖Sebastian Solace -Pressure
