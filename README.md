@@ -8,4 +8,4 @@
 𓆉⋆｡˚⋆❀ 🐚🫧𓇼 ˖°If you wish to see me on Ponytown just go to bakery or somewhere at the beach along the bottom of the map! I tend to be around either places the most!⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚<br> <br>
 ✩♬ ₊̊.🎧⋆☾⋆⁺₊✧ If you’re shooting with the left it means the right side is working - Ashbury Heights ▶︎ ၊၊||၊|။||||။‌‌‌‌‌၊| 1:10 <br> <br>
 Ponies you’ll commonly see me as:
-<br> ⋆｡˚⋆❀ Regect -Aregect (Main) <br> 𖥔 ݁ ˖Wifies -Mainly for TSFTL (Secondary) <Br> ⋆｡˚⋆❀Averythemayo + D3rlord3 -SF/Dawtde <br> 𖥔 ݁ ˖Sebastian Solace -Pressure
+<p>⋆｡˚⋆❀ Regect -Aregect (Main) https://reg3cted.straw.page <br> 𖥔 ݁ ˖Wifies -Mainly for TSFTL (Secondary) https://searching4levi.straw.page <Br> ⋆｡˚⋆❀Averythemayo + D3rlord3 -SF/Dawtde https://m4yonn4is3.straw.page <br> 𖥔 ݁ ˖Sebastian Solace -Pressure https://urb4nsh4d3.straw.page</p>
